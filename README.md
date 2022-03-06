@@ -1,7 +1,6 @@
 - 👋 Hi, I’m @KathrynEllenWalton
-- 👀 I’m interested in ... creative non-fiction
-- 🌱 I’m currently learning ...digital writing
-- 💞️ 
+- 👀 I’m interested in ... creative non-fiction & fiction writing for both novel and script
+- 🌱 I’m currently learning ... digital writing 
 - 📫 How to reach me ... @ kathryn.ea.walton@gmail.com
 
 <!---
